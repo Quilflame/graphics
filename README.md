@@ -19,3 +19,6 @@ strawberry shortcake graphics by @junabuggy on tumblr (๑ᵔ⤙ᵔ๑)
 </p>
 <details align="center"><summary>  ☆ yellow stamps </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
+</p>
+  
+![cats can sense stupid yellow stamp](https://64.media.tumblr.com/8fb43c9c42c765830924b4f13767168f/0431d7a9ce8d3941-c4/s100x200/fc6600efce1e5700d7ad80a32a6249df96c92adc.pnj)
