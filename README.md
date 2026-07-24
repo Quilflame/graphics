@@ -21,4 +21,4 @@ strawberry shortcake graphics by @junabuggy on tumblr (๑ᵔ⤙ᵔ๑)
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
 </p>
   
-![cats can sense stupid yellow stamp](https://64.media.tumblr.com/8fb43c9c42c765830924b4f13767168f/0431d7a9ce8d3941-c4/s100x200/fc6600efce1e5700d7ad80a32a6249df96c92adc.pnj)
+![cats can sense stupid yellow stamp](https://64.media.tumblr.com/8fb43c9c42c765830924b4f13767168f/0431d7a9ce8d3941-c4/s100x200/fc6600efce1e5700d7ad80a32a6249df96c92adc.pnj)![french fry yellow stamp](https://64.media.tumblr.com/4b54686b8745a6e199b8a9554c8f30bc/0431d7a9ce8d3941-65/s100x200/da920f2373fbd13451e69292ca81d8a431b3f38c.pnj)
