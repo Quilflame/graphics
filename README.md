@@ -29,5 +29,9 @@ strawberry shortcake graphics by @junabuggy on tumblr (๑ᵔ⤙ᵔ๑)
 
 <details align="center"><summary>  ☆ green stamps </summary>
 <p dir="auto"><math-renderer class="js-inline-math" style="display: inline-block" data-run-id="9c4f6f992c598d94713b8ab14326dc28" data-catalyst=""><math xmlns="http://www.w3.org/1998/Math/MathML">
-  
-![green espeon shiny stamp 1](https://64.media.tumblr.com/06895f54464f8bf0108c0db1a6213671/9a3af49b19c5c884-54/s100x200/5993a6700c59f47890aa869260552513a2e8f025.pnj) ![shiny espeon stamp 2](https://64.media.tumblr.com/3eafe3308d7165015f0b3eb631126a2b/9a3af49b19c5c884-cb/s100x200/f64c6d4cd76bfc54f254f728626d6908d71439de.gifv) ![shiny espeon stamp 3](https://64.media.tumblr.com/747932745259c0f84f8ecc8d72ec25f8/9a3af49b19c5c884-56/s100x200/398e3248ac9eba2e93417ab624dfe158cee95138.gifv) ![shiny espeon stamp 4](https://64.media.tumblr.com/03869f60433bf2db4a881a25af651547/9a3af49b19c5c884-a9/s100x200/394024386100e3f6946d50ed29a0dd1bdf8a4937.gifv)
+
+shiny espeon stamps by 99fish on tumblr
+
+![green espeon shiny stamp 1](https://64.media.tumblr.com/06895f54464f8bf0108c0db1a6213671/9a3af49b19c5c884-54/s100x200/5993a6700c59f47890aa869260552513a2e8f025.pnj) ![shiny espeon stamp 2](https://64.media.tumblr.com/3eafe3308d7165015f0b3eb631126a2b/9a3af49b19c5c884-cb/s100x200/f64c6d4cd76bfc54f254f728626d6908d71439de.gifv) ![shiny espeon stamp 3](https://64.media.tumblr.com/747932745259c0f84f8ecc8d72ec25f8/9a3af49b19c5c884-56/s100x200/398e3248ac9eba2e93417ab624dfe158cee95138.gifv) ![shiny espeon stamp 4](https://64.media.tumblr.com/03869f60433bf2db4a881a25af651547/9a3af49b19c5c884-a9/s100x200/394024386100e3f6946d50ed29a0dd1bdf8a4937.gifv) ![shiny espeon stamp 5](https://64.media.tumblr.com/561376f73e097607b9381208a43d944a/9a3af49b19c5c884-94/s100x200/a543ebb46cb2c7161866cbce7717a4d4270bd29b.gifv) ![shiny espeon stamp 6](https://64.media.tumblr.com/828a73b4ee016f4c564d133969111f2b/9a3af49b19c5c884-2e/s100x200/156cd0d12318103ade953df9c3b7f6da186c0018.gifv)
+
+
